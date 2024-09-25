@@ -2,7 +2,7 @@
 - 👀 I’m interested in game,music and everything
 - 🌱 I’m currently learning unity game engine and c# programing
 - 💞️ I’m looking to collaborate on game companies
-- 📫 How to reach me my e-mail
+- 📫 You can reach me via e-mail
 - 😄 Pronouns: I'm not gay
 - ⚡ Fun fact: If the earth were as small as a billiard ball, it would be smooth like a billiard ball.
 
